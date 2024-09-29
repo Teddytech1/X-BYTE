@@ -23,7 +23,7 @@
 
 ## WHATSAPP CHANNEL
 
-[![TalkDrove](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VaNRcHSJP2199iMQ4W0l)
+[![TalkDrove](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VadbvTUJENxtCoATX40a)
  
 
 </details>
