@@ -69,5 +69,5 @@
 
 ## THANKS TO
 
-• Allah
+• Teddy_md
 
